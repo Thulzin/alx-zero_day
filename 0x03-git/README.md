@@ -1,1 +1,0 @@
-Collaboration is the base
